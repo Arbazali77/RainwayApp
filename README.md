@@ -10,6 +10,6 @@ GET RAINWAY: [HTTPS://RAINWAY.TV/DOWNLOAD/](https://rainway.tv/download.html "HT
 
 WEBSITE: [HTTPS://RAINWAY.TV/](https://rainway.tv/ "HTTPS://RAINWAY.TV/")
 
-Personal message for influencers from director Katrina: https://rainway.tv/sponsorship/Message_From_Katrina.mp3
+PERSONAL MESSAGE FOR INFLUENCERS FROM MARKETING DIRECTOR: https://rainway.tv/sponsorship/Message_From_Katrina.mp3
 
 2022 © ALL RIGHTS RESERVED.
